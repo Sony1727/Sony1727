@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Sony1727
 - 👀 I’m interested in Teaching,programming
-- 🌱 I’m currently learning MCA
+-  MCA POSTGRADUATED
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
